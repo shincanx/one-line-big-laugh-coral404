@@ -8,7 +8,7 @@ Entry for the [make.fun bounty "One Line, Big Laugh"](https://make.fun/bounty/u-
 
 ## The line
 
-> I told my family I want my ashes scattered at the gym, so I finally go somewhere regularly.
+> My GPS sighed when I asked for the fastest route home: 'Therapy -- and I'm not elaborating.'
 
 ## Run it
 
